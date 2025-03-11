@@ -1,0 +1,1 @@
+# pensamiento-variacional-Bachilleres-7-CHIHUAHUA
